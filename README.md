@@ -47,6 +47,6 @@ Se disputará el **viernes 27 de diciembre de 2024** a las **19:30 UTC** en el *
 ---
 
 ## Contacto  
-**Correo:** [futbolpremier@gmail.com](mailto:futbolpremier@gmail.com)
+**Correo:** [obesatoy@gmail.com](mailto:futbolpremier@gmail.com)
 
 ![Contador de visitas](https://hitwebcounter.com/counter/counter.php?page=18083216&style=0001&nbdigits=9&type=page&initCount=0)
